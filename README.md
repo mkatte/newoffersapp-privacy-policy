@@ -1,0 +1,1 @@
+# newoffersapp-privacy-policy
